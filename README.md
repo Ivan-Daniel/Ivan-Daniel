@@ -6,4 +6,4 @@ Muy buenas...se que no me conoces pero te voy a contar un poco sobre mi😉
 
 -🃏 Megusta ponerle corazon a mis trabajo
 
-![Alt Text]https://static.wixstatic.com/media/669128_ec1c7a78e9694aec8a07c2e48b292ae1~mv2.gif 
+![Alt Text](https://static.wixstatic.com/media/669128_ec1c7a78e9694aec8a07c2e48b292ae1~mv2.gif) 
